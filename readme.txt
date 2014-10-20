@@ -1,0 +1,1 @@
+Today, I apply a domain on godaddy,I'll creat my own blog now.
